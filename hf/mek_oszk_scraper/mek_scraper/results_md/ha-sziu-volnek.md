@@ -1,0 +1,8 @@
+## (Ha sziú volnék…)
+
+Ha sziú volnék, tervelhetnék  
+hajamba most egy színes tollat  
+kis mellét most mossa meg Éva  
+és a bútorok halkan kopnak –
+
+1927. nov.

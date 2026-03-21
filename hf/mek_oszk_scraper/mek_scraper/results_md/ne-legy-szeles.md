@@ -1,0 +1,9 @@
+## (Ne légy szeles…)
+
+Ne légy szeles.  
+Bár a munkádon más keres –  
+dolgozni csak pontosan, szépen,  
+ahogy a csillag megy az égen,  
+ugy érdemes.
+
+1935–1937

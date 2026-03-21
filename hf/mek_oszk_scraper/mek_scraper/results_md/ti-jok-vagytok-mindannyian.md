@@ -1,0 +1,16 @@
+## Ti jók vagytok mindannyian
+
+Ti jók vagytok mindannyian,  
+Miért csinálnátok hát rosszat?
+
+Néha úgy vagytok a rosszal,  
+Mint a gyerek a csavargással.  
+Ujjong, eltéved, sirdogál  
+S hazakívánkozik.
+
+Ti mindannyian örültök a jónak  
+S fontoljátok meg, mit mondok:  
+Nem sánta az, aki  
+Együtt lelkendezik a csúszkálókkal!
+
+1924 első fele

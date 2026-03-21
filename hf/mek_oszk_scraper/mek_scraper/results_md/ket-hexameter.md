@@ -1,0 +1,6 @@
+## Két hexameter
+
+Mért legyek én tisztességes? Kiterítenek úgyis!  
+Mért ne legyek tisztességes! Kiterítenek úgyis.
+
+1936. nov.–dec.

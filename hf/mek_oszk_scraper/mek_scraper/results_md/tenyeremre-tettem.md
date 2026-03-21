@@ -1,0 +1,8 @@
+## (Tenyeremre tettem…)
+
+Tenyeremre tettem a lelkem:  
+Nézd meg, milyen szép százlátó üveg!  
+De Ő gyémántokat szedett elő,  
+Mert Ő az embert sose érti meg.
+
+1924. júl. 17.

@@ -1,0 +1,7 @@
+## (Esőben…)
+
+Esőben, rügyező ágak közt,  
+Reszketek érted,  
+Náthulok érted!
+
+1928

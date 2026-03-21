@@ -1,0 +1,11 @@
+## (Majd csöndbe fagynak a dalok…)
+
+Majd csöndbe fagynak a dalok,  
+a hősiség eloldalog,  
+irgalmat kérnek a balog  
+és kapzsi szenvedélyek.  
+Ugye jobb, hogyha nem csalok?  
+És mert én úgyis meghalok,  
+azt se kivánd, hogy éljek.
+
+1937. jún.

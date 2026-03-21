@@ -1,0 +1,10 @@
+## (Hallom, hogy az Ádám…)
+
+Hallom, hogy az Ádám ugy „ül mint a cövek”  
+ugy van odatéve, mint a nehéz kövek  
+és szépen növekszik  
+mert korán lefekszik  
+s megeszi az undok, jó tápfőzeléket  
+ezért mindannyian üdvözölünk téged.
+
+1936. febr. 25.

@@ -1,0 +1,8 @@
+## Galantai bátyámnak
+
+Szabó Dezsőt olcsón adja –  
+Fogadok egy se marad itt  
+Csak az a kár – öregapja! –  
+Drágán méri az Adyt.
+
+1923. júl. 4.

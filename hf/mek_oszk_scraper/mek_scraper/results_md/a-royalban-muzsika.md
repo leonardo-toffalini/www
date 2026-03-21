@@ -1,0 +1,11 @@
+## (A Royalban muzsika…)
+
+A Royalban muzsika  
+jó kislány a Zsuzsika,  
+kis gyerek a Péterke,  
+kell neki sok ételke,
+
+a harmadik az Aba,  
+az lesz ám a szép baba.  
+Egyedetek, begyedetek,  
+sok spenótot beegyetek.

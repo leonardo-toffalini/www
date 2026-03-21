@@ -1,0 +1,13 @@
+## A hit boldogít
+
+Belép a szép nő páholyába,  
+Csupa arany, fény, ragyogás,  
+Mosolygva bókol erre, arra –  
+A jobb körökben így szokás.
+
+És a mosoly egy sugarkája  
+A karzatig föl érkezik,  
+És egy diák ott elfelejti,  
+Hogy rongyos és hogy éhezik.
+
+1921 [?]

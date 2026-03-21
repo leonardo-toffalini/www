@@ -1,0 +1,8 @@
+## (Szél csapta…)
+
+Szél csapta égi rózsabokromat.  
+Kerengve száll a fonnyadt alkonyat.  
+Elnyomott népre hull a levele.  
+Játszik a bánat szellője vele.
+
+1931. jan.

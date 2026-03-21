@@ -1,0 +1,12 @@
+## Koldus
+
+Örökre látlak szépség-verte szemmel  
+– Ó bús szemem, ki szépeket szeretsz! –  
+Rád bámul hű szemem vak értelemmel,  
+Mindig Reád és bárhová mehetsz,  
+Mindig találkozol bolond szememmel,  
+A kapzsi koldus új nyomort szerez:  
+Szegényház óvná olcsó irgalomtul,  
+Mégis kiáll az útra s újra koldul.
+
+1922. okt.

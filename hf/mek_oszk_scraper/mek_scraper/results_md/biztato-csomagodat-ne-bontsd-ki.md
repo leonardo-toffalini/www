@@ -1,0 +1,23 @@
+## Biztató
+
+Csomagodat ne bontsd ki,  
+ha véginségre jutsz.  
+Azért véredet ontsd ki,  
+amiért sírni tudsz.
+
+A késő fordulásu  
+eget mig nézheted,  
+te lassu jajdulásu,  
+alkosd meg végzeted.
+
+Amit szemeddel sejtesz,  
+sziveddel várd ki azt,  
+amit szivedbe rejtesz,  
+szemednek tárd ki azt.
+
+„Hol csavarogsz, te vásott?”  
+Aggódva vár reád,  
+megvetvén elmulásod,  
+csendes édesanyád.
+
+1935 [?]

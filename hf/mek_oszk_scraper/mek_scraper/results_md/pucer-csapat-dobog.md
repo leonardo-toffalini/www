@@ -1,0 +1,14 @@
+## (Pucér csapat dobog…)
+
+Pucér csapat dobog a dombon,  
+Keresztülgázol kertemen.  
+Belénevetnek kutamba,  
+Hogy kékje nyugtalan legyen.
+
+Szépek, erősek, egymás húsát  
+Jóltépett lombokkal verdesik –  
+Ugrándozzatok csak magosra  
+S a friss széllel  
+Gyertek el ujra kertemig.
+
+1926. ápr.

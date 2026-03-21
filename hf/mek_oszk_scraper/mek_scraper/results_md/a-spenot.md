@@ -1,0 +1,21 @@
+## A spenót
+
+Nagy, méla bánat alvad a szivemben  
+A tányér fenekén meg a spenót  
+Mint vén kisasszony, nyugovóra hajolt  
+Porcellán-álmu kínos enyhületben
+
+Bús gőze száll, mint sóhajtás ha lebben  
+Vánnyadt ajakról várva a hajót,  
+Melyről az irígy, szűk szavú derót  
+Húsz éve adott hírt, csóknál is szebben.
+
+Azóta vár szegény a sír-gyomorra,  
+És lassan süllyedeznek a napok,  
+Ó szerelem, tejföl, tojás és orja!
+
+Kit szalvétámba titkon kaparok,  
+Mig szívemről verejték-csöpp aláhull,  
+Mint bús magad a szenvedő kanálrul.
+
+1924. január

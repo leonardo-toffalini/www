@@ -1,0 +1,16 @@
+## Március
+
+A föld alól a gyors csirák,  
+kidugják fejüket,  
+a fák, mint boltos áruját,  
+kirakják a rügyet,  
+kamaszok arcán pattanás,  
+férfiajkon a csók,  
+mind egy repeső kapkodás,  
+a szoknyák lobogók,  
+s már itt és ott fölhangzanak,  
+elűzve kínt, fagyot,  
+a szívbe húzódott szavak,  
+eszmék és kardalok.
+
+1935 vége

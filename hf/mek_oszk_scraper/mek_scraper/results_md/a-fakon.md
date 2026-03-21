@@ -1,0 +1,6 @@
+## (A fákon…)
+
+A fákon, mint a bokrokon  
+a bogyó, lóg a sok rokon.
+
+1935. jún. 14.

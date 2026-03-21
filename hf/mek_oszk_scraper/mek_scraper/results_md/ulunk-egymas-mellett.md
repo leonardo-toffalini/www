@@ -1,0 +1,12 @@
+## Ülünk egymás mellett
+
+Ülünk egymás mellett a padon.  
+Ülünk egymás mellett némán, hallgatagon.  
+Ő nem szól hozzám, és én se szólok néki.  
+– Mért kell a csüggedtnek búsan – mégis élni?  
+Nem szólok hozzá, bár tudom, hogy szerelme,  
+Hallgatok mellette, bár tudom, a lelke,  
+A lelke-szerelme csupán értem ég,  
+S azt is tudom, hogy meg fog siratni még.
+
+1921. szept. 24.

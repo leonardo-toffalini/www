@@ -1,0 +1,27 @@
+## Keresek valakit
+
+Tele vágyakkal zokog a lelkem,  
+Szerető szívre sohase leltem,  
+Zokog a lelkem.
+
+Keresek Valakit s nem tudom, ki az?  
+A percek robognak, tűnik a Tavasz  
+S nem tudom, ki az.
+
+Csüggedő szívvel loholok egyre,  
+Keresek valakit a Végtelenbe,  
+Loholok egyre.
+
+Könnyim csorognak – majd kiapadnak:  
+Vágyak magukkal messzebb ragadnak –  
+Majd kiapadnak!
+
+Búsan magamnak akkor megállok,  
+Szemem csukódik, semmitse látok –  
+Akkor megállok.
+
+Lelkem elröppen a Végtelenbe,  
+Tovább nem vágyom arra az egyre,  
+A Végtelenbe.
+
+1921. okt. 31.

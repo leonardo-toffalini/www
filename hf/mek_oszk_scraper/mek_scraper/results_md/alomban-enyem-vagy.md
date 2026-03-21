@@ -1,0 +1,13 @@
+## Álomban enyém vagy
+
+A boldogságunk némán meghúzódott  
+És mi is hallgattunk a titkolódzó csöndben.  
+Kályhánk lángja is örömmel lobogott  
+S ajkunkat a szerelem szárazra perzselte.  
+A komoly falióra se mormogott  
+S meghökkentek akkor a büszke, fehér falak…
+
+Álomban mindig egészen enyém vagy.  
+S hiszem fönn is néha, hogy megcsókoltalak.
+
+1922 első fele

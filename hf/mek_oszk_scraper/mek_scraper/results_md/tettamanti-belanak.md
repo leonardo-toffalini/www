@@ -1,0 +1,9 @@
+## [Tettamanti Bélának]
+
+Ki itt ha is csak félig üdvözül,  
+Mert nagy a bűne: Idecsöppent  
+A jövendő emberek közül,  
+Akik láttatván is, látnak:  
+Tettamanti Bélának szeretettel.
+
+1924. jan. 30.

@@ -1,0 +1,17 @@
+## Őszi alkonyat
+
+Kedves tanáromnak, Tettamanti Bélának
+
+Az őszutói barna alkonyat  
+Halkan piheg a pelyhező havon.
+
+Vállamra érzem szép, meleg nyakad  
+És messzi csókod itt az ajkamon.
+
+Hideg vonyít, agyonmart arcomat  
+Forró öledre mégse hajthatom.
+
+Be messze vagy még! Bús az alkonyat,  
+Lágy hópihékbe hull a bánatom.
+
+1922. nov.

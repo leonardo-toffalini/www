@@ -1,0 +1,23 @@
+## (Ó Európa hány redő…)
+
+Ó Európa hány redő  
+minden redőben gyilkosok  
+ne hadd hogy sirassam a lányt  
+ki két év mulva szülni fog.
+
+Ne hadd hogy szomorú legyek  
+Lucie nővérem hazavár  
+a gyilkosokban félelem  
+s a félelemben a halál.
+
+Verset irok hogy szórakozz  
+adjon kezet ki megmaradt  
+az irodalmi klikkeken  
+ez a versem is elakad.
+
+Egy légy a tejben megfuladt  
+a tenger a hegyfokra jött  
+s egy teritett asztal uszik  
+a jóllakott habok fölött.
+
+1927. júl. 17.

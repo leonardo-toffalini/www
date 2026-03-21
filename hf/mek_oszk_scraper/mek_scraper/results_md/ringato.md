@@ -1,0 +1,13 @@
+## Ringató
+
+Holott náddal ringat,  
+holott csobogással,  
+kékellő derűvel,  
+tavi csókolással.
+
+Lehet, hogy szerelme  
+földerül majd mással,  
+de az is ringassa  
+ilyen ringatással.
+
+1928 tavasza

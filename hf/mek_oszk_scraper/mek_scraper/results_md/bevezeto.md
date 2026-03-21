@@ -1,0 +1,12 @@
+## Bevezető
+
+Lidi nénémnek öccse itt,  
+Batu khán pesti rokona,  
+kenyéren élte éveit  
+s nem volt azúrkék paplana;  
+kinek verséért a halál  
+öles kondérban főz babot –  
+hejh burzsoá! hejh proletár! –  
+én, József Attila, itt vagyok!
+
+1927. máj.

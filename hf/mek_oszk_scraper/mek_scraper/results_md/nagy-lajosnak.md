@@ -1,0 +1,13 @@
+## [Nagy Lajosnak]
+
+Lajos, ha szépség köll, tömény,  
+azért vagyok itt, költöm én  
+és így lesz szép e költömény.
+
+---
+
+Zoológus ha sürög-forog,  
+megtudhatja: vannak farok,  
+amelyeken nem nő farok.
+
+1932. jún.

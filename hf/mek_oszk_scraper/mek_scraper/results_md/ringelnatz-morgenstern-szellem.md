@@ -1,0 +1,20 @@
+## Ringelnatz Morgenstern, avagy a szellem diadala napjainkban
+
+### Utile cliché
+
+Az ágy mellett két éjjeli  
+Szekrény áll cipővel teli,  
+Két-két pár lábbeli  
+Jutna  
+Mindegyiknek, ha járni tudna.
+
+Ha két bús kenguru bemegy  
+S a balsó szekrényre az egy-  
+Ik árnyával elegy  
+Mászik,  
+Akkor magosabb, mint a másik.
+
+Szerzette: Márthy Nagyobb Öröme  
+geschrieben von Öröm Nagyobb von Márt
+
+1928. szept. 30.

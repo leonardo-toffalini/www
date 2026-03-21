@@ -1,0 +1,16 @@
+## Axióma
+
+Ha kétszer annyit ennél,  
+mint amennyit nem ennél  
+ha éhes volnál, akkor jól  
+volnál lakva.  
+chateaustresemann  
+avagy   
+Burgbriand  
+étekfogó
+
+Maxima: Il y a des hommes qui ont des neveus  
+et des nièces et pantallon noire, et  
+des autres.
+
+1928. szept. 30.

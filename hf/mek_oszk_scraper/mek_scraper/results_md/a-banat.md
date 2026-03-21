@@ -1,0 +1,15 @@
+## A bánat
+
+A bánat szürke, néma postás,  
+Sovány az arca, szeme kék,  
+Keskeny válláról táska lóg le,  
+Köntöse ócska, meg setét.
+
+Mellében olcsó tik-tak lüktet,  
+Az utcán félénken suhan,  
+Odasimúl a házfalakhoz  
+És eltünik a kapuban.
+
+Aztán kopogtat. Levelet hoz.
+
+1922. aug.–szept.

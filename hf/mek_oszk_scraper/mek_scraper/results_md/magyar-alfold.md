@@ -1,0 +1,23 @@
+## Magyar Alföld
+
+Magyar Alföld – gond a dombja;  
+temploma cövek;  
+talaja mély aludttej, de benne  
+hánykolódnak szögletes kövek.
+
+Magyar ember – rongya zászló;  
+étele a tál;  
+dudvaszedő nemzet vagyunk, értünk  
+mezítláb jön foltozott halál!
+
+Nosza költő! Holt a holdad;  
+köldököd kötél;  
+csettintésed égő város, tollad  
+füstölög s egy szál gyufát nem ér!
+
+Ó, kik nőttök felhőt leveledzvén,  
+bodzás kis fenék –  
+nézzétek, ím, országúton, némán  
+vándorolnak ki a jegenyék!
+
+1928

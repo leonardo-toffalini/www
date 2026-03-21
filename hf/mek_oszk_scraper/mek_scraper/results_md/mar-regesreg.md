@@ -1,0 +1,19 @@
+## (Már régesrég…)
+
+Már régesrég rájöttem én,  
+kétéltű vagyok, mint a béka.  
+A zúgó egek fenekén  
+lapulok most, e költemény  
+szorongó lelkem buboréka.
+
+Gondos gazdáim nincsenek,  
+nem les a parancsomra féreg.  
+Mint a halak s az istenek,  
+tengerben és egekben élek.
+
+Tengerem ölelő karok  
+meleg homályu, lágy világa.  
+Egem az ésszel fölfogott  
+emberiség világossága.
+
+1937. jan.

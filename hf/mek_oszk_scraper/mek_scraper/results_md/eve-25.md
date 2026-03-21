@@ -1,0 +1,8 @@
+## (25 éve…)
+
+25 éve a papirt szolgálja  
+minden erővel, bele se rezdül  
+25 éve eteti papirral  
+s nő, hízik a kultura rajta keresztül.
+
+1936. dec.

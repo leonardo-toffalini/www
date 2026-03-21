@@ -1,0 +1,17 @@
+## Kedves Jocó!
+
+### 1. ső strófa
+
+De szeretnék gazdag lenni,  
+Egyszer libasültet enni,  
+Jó ruhába járni kelni,  
+S öt forintér kuglert venni.
+
+### 2. strófa
+
+Mig a cukrot szopogatnám,  
+Uj ruhámat mutogatnám,  
+Dicsekednél fűnek fának,  
+Mi jó dolga van Attilának.
+
+1916–1917[?]

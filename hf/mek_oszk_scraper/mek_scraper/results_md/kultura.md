@@ -1,0 +1,12 @@
+## Kultúra
+
+A virág elfáradt már szagosodni.  
+Unta,  
+hogy mifenének tettük asztalunkra.  
+S igyekezett árnyékot vetni,  
+nagyobbat, mint a kertben  
+s elfáradt, mikor nem néztünk oda.
+
+De észrevettem.
+
+1926 ősze [?]

@@ -1,0 +1,6 @@
+## Tusikának
+
+Mint ibolyák, a férfikebelben a szív kivirágzik,  
+S mint ibolyák rejtve este magába susog.
+
+1922. ápr. 2.

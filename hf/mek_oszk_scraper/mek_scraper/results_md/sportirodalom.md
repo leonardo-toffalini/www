@@ -1,0 +1,9 @@
+## Sportirodalom
+
+Sportirodalma, Takács, kedvessé tette a sportot  
+méla szememben, amely csak a sakk kockáin öregbült.  
+Már evezőt ragadok, gerelyem zug, röppen a diszkosz.  
+Holnapután kihuzom magamat; – s: milyen egy dali fickó –  
+így sóhajtnak utánam a lányok, még a Takács is.
+
+1937 [?]

@@ -1,0 +1,23 @@
+## Bánat
+
+Futtam, mint a szarvasok,  
+lágy bánat a szememben.  
+Famardosó farkasok  
+űznek vala szivemben.
+
+Aggancsom rég elhagyám,  
+törötten ing az ágon.  
+Szarvas voltam hajdanán,  
+farkas leszek, azt bánom.
+
+Farkas leszek, takaros.  
+Varázs-üttön megállok,  
+ordas társam mind habos;  
+mosolyogni próbálok.
+
+S ünőszóra fülelek.  
+Hunyom szemem álomra,  
+setét eperlevelek  
+hullanak a vállamra.
+
+1930. jún.

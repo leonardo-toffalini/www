@@ -1,0 +1,10 @@
+## (Mint örök keservet…)
+
+Mint örök keservet  
+Irta ezt a verset  
+Az ördög-motolla,  
+Juhász Gyula tolla,  
+Ki vala nagy búban  
+Szíves háborúban.
+
+1924. okt. 4.

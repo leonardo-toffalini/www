@@ -1,0 +1,13 @@
+## Én nem tudom…
+
+Én nem tudom, mi fenyeget  
+az estek csipkés árnyain;  
+mint romló halról a legyek,  
+szétszállnak tőle álmaim.
+
+És nem tudom, mily dajkahang  
+cseng a szivembe csendesen:  
+nyugodj, hiszen csak este van  
+s mitől is félnél, kedvesem?
+
+1937. jún. eleje

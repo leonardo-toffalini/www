@@ -1,0 +1,12 @@
+## Anya
+
+Az őszi eső szürke kontya  
+arcomba lóg zilálva, bontva.  
+Harmadik napja sírja, mondja,  
+mint tébolyult anya motyogja  
+– mert csecsre vágyom – rám meredve:  
+Reátaláltam gyermekemre,  
+aludj el, édes kedvesem, te,  
+csitt, csitt, kicsikém, tente, tente…
+
+1934. szept. eleje

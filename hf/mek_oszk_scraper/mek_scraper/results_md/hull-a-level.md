@@ -1,0 +1,13 @@
+## (Hull a levél…)
+
+Hull a levél a fáról,  
+Elmegyek én e tájról,  
+Elmegyek én messzire,  
+El a világ végire.
+
+Nékem nincs még szeretőm,  
+Nem adott a Teremtőm.  
+Elmegyek hát keresni,  
+Szeretnék már szeretni.
+
+1922. febr. 13.

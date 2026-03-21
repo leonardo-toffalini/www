@@ -1,0 +1,10 @@
+## (Csókol Attila…)
+
+Csókol Attila, a hírneves költő,  
+melyet nem szül kettő,  
+sőt három emberöltő.  
+Attilának tetszik ének, tánc és séta,  
+Ő az édes szavú aranyos poëta,  
+hozzá más költő csak analfabéta.
+
+1921. febr. 20.

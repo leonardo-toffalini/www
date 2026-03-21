@@ -1,0 +1,18 @@
+## Az új honőrhöz!
+
+### Egy jólsikerült játszma emlékére
+
+Megszülettél lábbal, kézzel,  
+távirati rövidséggel.  
+Szlemmet szoktak így csinálni:  
+nem tudtak kilicitálni.  
+Te sem győzted jószíveddel – mi? –  
+a mamának kibicelni,  
+untad a sok link bemondást,  
+pikk helyett a káróbontást.  
+S fölvisítál, mint a bíbic:  
+„Nem leszek itt tovább kíbic!”  
+Mamád, kis rönonsszal élve,  
+így ütött egy robbert nyélbe.
+
+1933. jan. 12.

@@ -1,0 +1,23 @@
+## (Az Isten itt állt a hátam mögött…)
+
+Az Isten itt állt a hátam mögött  
+s én megkerültem érte a világot  
+………………………………………………  
+………………………………………………
+
+Négykézláb másztam. Álló Istenem  
+lenézett rám és nem emelt föl engem.  
+Ez a szabadság adta értenem,  
+hogy lesz még erő, lábraállni, bennem.
+
+Ugy segitett, hogy nem segithetett.  
+Lehetett láng, de nem lehetett hamva.  
+Ahány igazság, annyi szeretet.  
+Ugy van velem, hogy itt hagyott magamra.
+
+Gyönge a testem: óvja félelem!  
+De én a párom mosolyogva várom,  
+mert énvelem a hűség van jelen  
+az üres űrben tántorgó világon.
+
+1937. szept.–okt.

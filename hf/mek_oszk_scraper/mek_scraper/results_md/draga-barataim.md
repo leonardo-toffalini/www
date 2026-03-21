@@ -1,0 +1,11 @@
+## (Drága barátaim…)
+
+Drága barátaim, kik gondoltok még a bolonddal,  
+nektek irok most, innen, a tűzhely oldala mellől,  
+ahova húzódtam melegedni s emlékezni reátok.  
+Mert hiszen összevegyült a novemberi est hidegével  
+bennem a lassúdan s alig oldódó szomorúság.  
+Emlékezzetek ott ti is, és ne csupán hahotázva  
+rám, aki köztetek éltem s akit ti szerettetek egykor.
+
+1937. nov.

@@ -1,0 +1,5 @@
+## (Irgalom, édesanyám…)
+
+Irgalom, édesanyám, mama, nézd, jaj kész ez a vers is!
+
+1937 eleje

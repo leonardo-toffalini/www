@@ -1,0 +1,12 @@
+## (Kedves Zoltán…)
+
+Kedves Zoltán,  
+nem nagyzol tán  
+a költő,  
+ha töltő-  
+tollával íme  
+verset ír neked,  
+vagyis éneket,  
+melynek van ríme
+
+1937

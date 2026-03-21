@@ -1,0 +1,6 @@
+## [Braun Évának]
+
+Ahogy öreg akác nyujt egy hulló levelet a fiatal hársnak,  
+úgy adom e könyvet Braun Évának, az ifju költőtársnak.
+
+1934. febr. 11.
